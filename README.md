@@ -1,1 +1,0 @@
-# Parcial-i-Bengie-Medina.
